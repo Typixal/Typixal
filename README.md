@@ -1,5 +1,5 @@
 # 💫 About Me:
-Cybersecurity and DevOps enthusiast. 
+DevOps with a side of GameDev and CyberSecurity :D. 
 
 
 ## 🌐 Socials:
